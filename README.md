@@ -2,6 +2,10 @@
 
 The United States and those Rules &amp; Laws :: US Simulations and Simulacra
 
+1. You are Not Living in a Simulation
+2. You are Not an Adminstrator of Such a System
+3. You are Not Entering or Exiting: safe; such Stays of a stafe system.
+
 **Ceteris Paribus**
 
 # Remainder.Ceteris.Paribus
